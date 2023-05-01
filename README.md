@@ -28,7 +28,8 @@ The next phrase is " in a nutshell ". This phrase is used when you want to summa
 - you can say "
 ### In a nutshell,
 - I think that studying online is better than studying in a classroom".
-The next phrase is " can we summarise the discussion?". This phrase is used when you want to end the discussion by including everyone in - it. It's a way of saying "let's summarise the discussion" that includes everyone in the - decision. I hope this lesson has given you a number of different phrases that you can use when you're taking part in a discussion.###  If you would like to learn more about this subject,
+The next phrase is " can we summarise the discussion?". This phrase is used when you want to end the discussion by including everyone in - it. It's a way of saying "let's summarise the discussion" that includes everyone in the - decision. I hope this lesson has given you a number of different phrases that you can use when you're taking part in a discussion.
+###  If you would like to learn more about this subject,
 - please visit our website - www. incred.- com. 
 ## Keywords
 - discussion
