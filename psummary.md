@@ -1,0 +1,3 @@
+# Summary
+
+In the text, the speaker discusses why it is important to participate in discussions effectively, and how to do so. They mention that if you are going to study online, it is faster than if you go to school, and that a teacher can motivate students in a discussion. They also say that it is a good idea to add your own opinion to a discussion, and that you can do so by saying " I am sorry, but which one is something which changes that?" They also say that if you are studying online, you can use expressions like " in a nutshell" to end the discussion.
