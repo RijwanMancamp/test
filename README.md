@@ -1,5 +1,5 @@
 # English Discussion Phrases
-In today'### s lesson,
+In today's lesson,
 - you will learn how to effectively participate in an English discussion.
 - ###  This is a skill you may need in your personal,
 - professional, or academic - life. The topic of today's discussion is "Is it better to study online or in a regular classroom?" You will have a chance to hear a discussion by native English speakers on this topic.
